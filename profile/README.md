@@ -4,7 +4,7 @@
 
 The **Call of Duty** franchise dominates the FPS scene with games like Modern Warfare, Black Ops, and Warzone. But ranked lobbies, sweaty players, and endless grind for camos and operators can wear you down. That’s where a **Call of Duty hack** comes in – powerful tools like **aimbot, ESP, wallhack, no recoil, and unlock-all mods** that give you the upper hand in any mode.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Hack-blueviolet)](https://call-of-duty-hacks.github.io/.github/)
 ---
 
 ## What Is a COD Hack?
